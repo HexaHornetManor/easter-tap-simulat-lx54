@@ -1,4 +1,4 @@
-#  
+#  easter tap simulator secure Script is the best easter tap simulator Script, featuring auto-heal and anti-ban. Safe and powerful for all your needs.
 
 
 
